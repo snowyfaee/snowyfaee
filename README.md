@@ -10,7 +10,7 @@ doodling, procrastinating, thinking about spamtenna way too much
 
 ┈┈┈ fav characters ┈┈┈
 
-noelle my beloved, tenna,
+noelle holiday my beloved, tenna,
 deltarune cast (they live in my head rent free), phainon :3
 
 ![1000522741](https://github.com/user-attachments/assets/a4f693b3-cc0d-46d6-bd72-a6aaba14af93)
