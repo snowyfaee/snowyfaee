@@ -1,3 +1,5 @@
+## gonna work on this thing soon
+<img width="768" height="768" alt="1000522645" src="https://github.com/user-attachments/assets/696c2041-7a3a-4d60-99b9-db8ae324a00e" />
 
 
 <!--
