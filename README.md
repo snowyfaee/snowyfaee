@@ -2,7 +2,7 @@
 
 ┈┈┈ status ┈┈┈
 
-currently hyperfixating on deltarune (send help)
+currently hyperfixating on deltarune
 
 ![1000522741](https://github.com/user-attachments/assets/a4f693b3-cc0d-46d6-bd72-a6aaba14af93)
 
