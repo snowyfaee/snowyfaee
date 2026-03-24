@@ -4,18 +4,8 @@
 
 currently hyperfixating on deltarune (send help)
 
-┈┈┈ interests ┈┈┈
-
-doodling, procrastinating, thinking about spamtenna way too much
-
-┈┈┈ fav characters ┈┈┈
-
-noelle holiday my beloved, tenna,
-deltarune cast (they live in my head rent free), phainon :3
-
 ![1000522741](https://github.com/user-attachments/assets/a4f693b3-cc0d-46d6-bd72-a6aaba14af93)
 
-i’ll fix this later (i won’t)
 <!--
 **snowyfaee/snowyfaee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
