@@ -1,6 +1,5 @@
 ## ✦ hi hello hi :3 ✦
 
-┈┈┈ status ┈┈┈
 
 currently hyperfixating on deltarune
 
