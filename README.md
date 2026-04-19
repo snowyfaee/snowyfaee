@@ -4,7 +4,7 @@
 currently hyperfixating on deltarune
 
 ![1000522741](https://github.com/user-attachments/assets/a4f693b3-cc0d-46d6-bd72-a6aaba14af93)
-
+I'll update this soon :^ (i won't) 
 <!--
 **snowyfaee/snowyfaee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
