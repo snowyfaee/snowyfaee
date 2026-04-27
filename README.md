@@ -1,6 +1,7 @@
 <p align="center">
-  It's a dream, right? I'd grow big angel wings,<br>
-  and fly as far as I can
+  <i>“It’s a dream, right?<br>
+  I’d grow big angel wings,<br>
+  and fly as far as I can.”</i>
 </p>
 <img width="1398" height="987" alt="1000543072" src="https://github.com/user-attachments/assets/23790fd6-a155-411e-bb9f-b19b025dd300" />
 
