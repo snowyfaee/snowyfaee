@@ -1,4 +1,7 @@
 <p align="center">
+  ⋆｡‧˚ʚ♡ɞ˚‧｡⋆
+</p>
+<p align="center">
   <i>“It’s a dream, right?<br>
   I’d grow big angel wings,<br>
   and fly as far as I can.”</i>
