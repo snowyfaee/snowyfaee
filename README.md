@@ -1,14 +1,14 @@
-It's a dream, right? I'd grow big angel         wings, and fly as far as I can
-
-<img width="1398" height="987" alt="1000543072" src="https://github.com/user-attachments/assets/5b1124a3-b3ae-4964-83bd-7cf50c1af560" />
-
-
-
-
+<p align="center">
+  It's a dream, right? I'd grow big angel wings,<br>
+  and fly as far as I can
+</p>
+<img width="1398" height="987" alt="1000543072" src="https://github.com/user-attachments/assets/23790fd6-a155-411e-bb9f-b19b025dd300" />
 
 
 
-artcred : @sugarlover1225
+<p align="center">
+  <sub>artcred : @sugarlover1225</small>
+</p>     
 
 <!--
 **snowyfaee/snowyfaee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
