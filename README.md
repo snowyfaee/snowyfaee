@@ -1,10 +1,12 @@
-## ✦ hi hello hi :D ✦
+It's a dream, right? I'd grow big angel wings, and fly as far as I can,
+
+<img width="1398" height="987" alt="1000543072" src="https://github.com/user-attachments/assets/5b1124a3-b3ae-4964-83bd-7cf50c1af560" />
+
+artcred : @sugarlover1225
 
 
-currently hyperfixating on deltarune
 
-![1000522741](https://github.com/user-attachments/assets/a4f693b3-cc0d-46d6-bd72-a6aaba14af93)
-I'll update this soon :^ (i won't) 
+
 <!--
 **snowyfaee/snowyfaee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
